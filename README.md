@@ -1,1 +1,1 @@
-# Olasılık Ve İstatistik Dersi Ödevleri
+# Olasılık Ve İstatistik  Ödevleri
