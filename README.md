@@ -1,1 +1,0 @@
-# Olasılık Ve İstatistik  Ödevleri
